@@ -1,2 +1,2 @@
-Contact ME! https://joymunt.000webhostapp.com/#contact
-Skills https://joymunt.000webhostapp.com/#skills
+Contact ME! https://joymunt.my.id/#contact
+Skills https://joymunt.my.id/#skills
